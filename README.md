@@ -15,3 +15,7 @@
 ![image](https://github.com/faizahmad92/assignment3/assets/133310701/e06c164e-bb30-4554-89c0-b0b89cf1999b)
 
 ![image](https://github.com/faizahmad92/assignment3/assets/133310701/d204c845-876e-4077-ba57-05585868da57)
+
+![image](https://github.com/faizahmad92/assignment3/assets/133310701/b1f4fc90-7b01-4a09-841c-f05d9280b55b)
+
+![image](https://github.com/faizahmad92/assignment3/assets/133310701/7b7ba446-58bb-4ccc-8744-b3f7a0796dc9)
